@@ -1,0 +1,2 @@
+# Devil_Survivor_2_Akashic_Record
+デビルサバイバー2 アカシックレコード
